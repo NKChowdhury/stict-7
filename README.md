@@ -1,0 +1,2 @@
+# stict-7
+PSD TO BOOTSTRAP
